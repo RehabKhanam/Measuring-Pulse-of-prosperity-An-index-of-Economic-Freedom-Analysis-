@@ -1,0 +1,1 @@
+# To-confirm-type-Measuring-Pulse-of-prosperity-An-index-of-Economic-Freedom-Analysis-
